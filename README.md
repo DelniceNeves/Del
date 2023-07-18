@@ -1,3 +1,5 @@
 Hi! Bem vindos ao meu perfil!!! 
 
-DELnice Neves
+Meu nome é DELnice Neves🐈 
+
+Estou estudando na Alura
